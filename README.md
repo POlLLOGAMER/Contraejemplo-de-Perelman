@@ -14,6 +14,6 @@ El dogma de las matemáticas igual.
 
 De nada.
 
-**Atentamente:**
+**Atentamente:יהוה y Kaoru Aguilera Katayama**
 
-יהוה y Kaoru Aguilera Katayama
+"No confies en ningun sistema creado por humanos, ten cuidado desde la proxima XD" יהוה
